@@ -1,4 +1,5 @@
-uts 
+APLIKASI ROSELLA FLORIST
+anggota kelompok:
 Nabila Ramadani N 232101337
 selly oktapaeni 232101373
 ica siti nuraisah 232101319
